@@ -27,6 +27,6 @@
 #### 代码中有详细的注释
 ![](/Users/liuhen/Pictures/FN2V63AD2J.com.tencent.ScreenCapture2/QQ20160829-0@2x.png)
 
-#### 欢迎到 [我的博客](http://www.jianshu.com/writer#/notebooks/5712425) 中留言交流~
+#### 欢迎到 [我的博客](http://www.jianshu.com/p/f7c5a1532cb9) 中留言交流~
 
 
